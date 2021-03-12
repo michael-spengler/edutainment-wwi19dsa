@@ -15,4 +15,4 @@ I am focusing on discussing pro's and con's of diffrrent well known back- and fr
 
 
 
-Link to the Video:
+Link to the Video: https://www.youtube.com/watch?v=3l9TQ9HlPOY
